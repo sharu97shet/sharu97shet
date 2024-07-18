@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **sharathshet.n@gmail.com, appushet2@gmail.com**
 
-- ⚡ Fun fact **I'm funny**
+- ⚡ Fun fact ****
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
